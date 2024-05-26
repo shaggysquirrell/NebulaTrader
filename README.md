@@ -1,4 +1,4 @@
-In the year 2028 scientists made a discovery that would be detremental to the survival of the human race. The JWST detected a Mars sized planetoid that is on course to intersect the solar system.
+In the year 2028 scientists made a discovery that would be detrimental to the survival of the human race. The JWST detected a Mars sized planetoid that is on course to intersect the solar system.
 We had 80 years to prepare for a possible slingshot out of the suns influnce or put in an unhabitable zone. Time came and went, we progressed... Pulse engines, Warp engines, multiplanet colonies, space colony stations...
 However it came to a reckoning when time drew closer to what sceintist have determined would be the big freeze. Earth would be hurled from the solar system and with it life, all it would have left was its geothermal energy kept insulated 
 by the frozen oceans. 
